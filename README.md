@@ -1,4 +1,4 @@
-Been there done that 
+I write. Code and music
 
 ## My stats
 
